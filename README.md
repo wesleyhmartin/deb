@@ -32,4 +32,3 @@ Wesley Martin
 PA, USA
 
 Email: deb@wesleymartin.net
-Text: +1 (570) 500-0665
